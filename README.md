@@ -1,1 +1,1 @@
-# http-wap.blog.163.com-mjlxs
+httpwap.home.blog
